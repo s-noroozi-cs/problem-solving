@@ -1,0 +1,1 @@
+I share my idea behind the any problem solving. I enjoy diferent ideas of solution and its purposes.
